@@ -51,3 +51,6 @@ Head over to [Sprunki Incredibox Games](https://playsprunki.net "Sprunki Incredi
 
 yahoo search sprunki incredibox games: [Sprunki Incredibox Games](https://search.yahoo.com/search?p=playsprunki+net "Sprunki Incredibox Games")
 bing search sprunki incredibox games: [Sprunki Incredibox Games](https://www.bing.com/search?q=playsprunki%20net "Sprunki Incredibox Games")
+
+## Links
+[Trustscore](https://www.scamadviser.com/check-website/sprunki-incredibox.co)
