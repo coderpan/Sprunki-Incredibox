@@ -55,3 +55,4 @@ bing search sprunki incredibox games: [Sprunki Incredibox Games](https://www.bin
 ## Links
 [Trustscore](https://www.scamadviser.com/check-website/playsprunki.net)
 [patreon](https://www.patreon.com/posts/how-to-create-ai-127714514)
+[patreon collection](https://www.patreon.com/collection/1494892)
