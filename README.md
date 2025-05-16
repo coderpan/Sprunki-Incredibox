@@ -52,6 +52,8 @@ Head over to [Sprunki Incredibox Games](https://playsprunki.net "Sprunki Incredi
 yahoo search sprunki incredibox games: [Sprunki Incredibox Games](https://search.yahoo.com/search?p=playsprunki+net "Sprunki Incredibox Games")
 bing search sprunki incredibox games: [Sprunki Incredibox Games](https://www.bing.com/search?q=playsprunki%20net "Sprunki Incredibox Games")
 
+[Tired of Struggling with Song Style Descriptions? Meet Our New Enhanced Style API!​​](https://www.patreon.com/posts/129087146)
+
 ## Links
 [Trustscore](https://www.scamadviser.com/check-website/playsprunki.net)
 [patreon](https://www.patreon.com/posts/how-to-create-ai-127714514)
